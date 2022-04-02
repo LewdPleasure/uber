@@ -1,3 +1,1 @@
-UBER777.MOSCOW
-
-Attempt to make layout
+https://lewdpleasure.github.io/uber/
